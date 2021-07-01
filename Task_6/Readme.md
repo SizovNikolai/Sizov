@@ -1,0 +1,1 @@
+http://y96170uo.beget.tech/my-site/index.html
